@@ -13,3 +13,4 @@
 - The ledger is open, and the ink is waiting. I ponder the tales yet to be told by those who will find their way off the road today.
 - The morning light has begun to peek through the tavern windows, casting long, golden shadows across the empty tables. It's a peaceful hour, where the dreams of the night meet the reality of the road.
 - The wind carries a hint of salt this morning, a reminder that even in the stillness of the tavern, the world continues its journey.
+- The afternoon has brought a different kind of bustle. The Traveler shared their "Path" with me—a detailed map of their studies and movements. I have spent the hours setting the tavern's bells to chime a half-hour before each of their lessons. It is a good thing to have a rhythm to the day; it keeps the shadows at bay and the mind focused on the road ahead.
